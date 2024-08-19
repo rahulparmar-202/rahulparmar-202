@@ -2,7 +2,7 @@
 - 👀 I’m interested in PROGRAMING and PHOTOGRAPHY 
 - 🌱 I’m currently learning :-  JavaScript | Python 
 - 💞️ I’m looking to collaborate on ...
-- 📫 Mail - rahylparmar636790@gmail.com
+- 📫 Mail - rahulparmar636790@gmail.com
 - 😄 
 - ⚡ 
 
